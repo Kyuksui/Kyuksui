@@ -1,4 +1,4 @@
-- "With the power of the stars and the strength of her heart, she is—𝘒𝘠𝘜𝘒𝘚𝘜𝘐, the magical protector of the night!"
+- "With the brilliance of the sun and the courage in her soul, she is—𝘒𝘠𝘜𝘒𝘚𝘜𝘐, the magical protector of the day!"
 
  ╔═*.·:·.✧ ✦ ✧.·:·.*═╗
 
